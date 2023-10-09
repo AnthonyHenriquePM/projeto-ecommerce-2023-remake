@@ -1,1 +1,1 @@
-'bom dia'
+'Refazendo o conteúdo de um curso que ando estudando, adoro copiar'
